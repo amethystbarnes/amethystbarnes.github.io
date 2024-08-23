@@ -1,1 +1,0 @@
-# amethystbarnes.github.io
